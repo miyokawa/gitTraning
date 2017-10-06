@@ -1,1 +1,4 @@
 # gitTraning
+
+
+Name ryouta komatsu
